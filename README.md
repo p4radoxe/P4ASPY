@@ -16,8 +16,13 @@ Get Call Logs
 
 Get Images
 
+Get Screenshot
+
 & Much More......
 
 Regular Updates
 
-#Buy From Only: [@P4RADOXE](https://t.me/P4RADOXE)
+# BOT Link: [@p4androidspy_bot](https://t.me/p4androidspy_bot)
+
+# Buy From Only: [@P4RADOXE](https://t.me/P4RADOXE)
+
