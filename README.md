@@ -5,12 +5,19 @@
 
 # What Can This BOT Do?
 Get Device Name
+
 Get Notifications
+
 Get SMS (In Realtime)
+
 Get Call Details
+
 Get Call Logs
+
 Get Images
+
 & Much More......
+
 Regular Updates
 
 #Buy From Only: [@P4RADOXE](https://t.me/P4RADOXE)
